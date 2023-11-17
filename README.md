@@ -1,4 +1,4 @@
-# Hi there, I'm Chukwu Kingsley 👋
+# Hi there, I'm Kingsley Chukwu👋
 
 Passionate Frontend Alchemist | HTML Sorcerer | CSS Wizard | JavaScript Enchanter
 
