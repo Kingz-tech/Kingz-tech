@@ -16,7 +16,7 @@ Passionate Frontend Alchemist | HTML Sorcerer | CSS Wizard | JavaScript Enchante
 
 Let's weave some digital spells together! ✨✨
 
-📫 Reach out to me: [chukwukaycee@gmail.com]
+📫 Reach out to me: [chukwukaycee17@gmail.com]
 🐦 Twitter: [@kingz_techy]
 👔 LinkedIn: [https://www.linkedin.com/in/kingsley-chukwu-0577a229b/]
 
